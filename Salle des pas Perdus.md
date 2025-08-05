@@ -2,37 +2,73 @@
 
 Salle des pas Perdus (Coralie Clément)
 
+(1/4)
+
 Mon nom ne vous dit rien
+
 Vous devez ignorer
+
 Que nous sommes voisins
+
 depuis le mois de mai
+
 Mes cheveux sont châtains
+
 Mon air est détaché
+
 Vous sentez mon parfum
+
 tous les soirs sur le palier
 
+(2/4)
+
 Je vous ai aperçu
+
 Salle des pas perdus
-Un soir, était-ce à St Lazare ?
+
+Un soir, était-ce à St Lazare?
+
 Avec une inconnue
+
 Coiffée d'un fichu, jacquard
+
 Vous portiez sa guitare
 
+(3/4)
+
 Si j'ose néanmoins
+
 Vous écrire ce billet
+
 C'est pour tenez vous bien
+
 C'est pour vous déclarer
+
 Ma flamme et mon chagrin
+
 Mais aussi mes regrets
+
 De ne vous avoir pas
+
 Suivi sur le quai
 
+(4/4)
+
 Et de n'avoir pas su
+
 Salle des pas perdus
+
 Vous dire quel était mon désir
+
+c'est bizarre
+
 Je serais à la terrasse
+
 Du café d'en face
+
 Ce soir à dix heures moins le quart
+
+Bien à vous. Lou
 
 ## 逐句解析
 
